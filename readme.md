@@ -1,0 +1,1 @@
+Website for fictional black metal band Phenomenal Chicken Skulls designed by Autumn Raine, Job, and Clark Newell, group project December 8, 2017, Galvanize g75.
